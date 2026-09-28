@@ -2,7 +2,7 @@
 help me idk what im doing
 <br/> im kairo hello
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
-<br/> C+H ARE ALWAYS HEAVILY ENC **UNLESS** I HAVE DNI OR DNT IN MY NAME. I AM SERIOUS. I WANT SOMEONE SITTING WITH ME ALL THE TIME. I DONT CARE WHO U ARE DUDE UNLESS UR ON DNI PLSPLSPLS
+<br/> C+H ARE ALWAYS HEAVILY ENC **UNLESS** I HAVE DNI OR DNT IN MY NAME. I AM SERIOUS. I WANT SOMEONE SITTING WITH ME ALL THE TIME. I DONT CARE WHO U ARE DUDE UNLESS UR ON MY DNI PLSPLSPLS
 <br/> FAV SHIPS: (C+H EXTRA ENC IF THESE) dessriel, blellow, blellowey, flowerkaard, kralsei, suselle, fasionshow, moonbasket, shellcake
 <br/> shoutout to my awesome friends yellow and gordon lol hello hi
 <br/> pls dont mention splatoon around me it makes me very uncomfy
