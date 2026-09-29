@@ -1,5 +1,5 @@
 # kairo's intro
-help me idk what im doing
+help me idk what im doing UHHH pls bmf hahah i need friend on pt very much oh ok oh ok oh ok
 <br/> im kairo hello
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
 <br/> C+H ARE ALWAYS HEAVILY ENC **UNLESS** I HAVE DNI OR DNT IN MY NAME. I AM SERIOUS. I WANT SOMEONE SITTING WITH ME ALL THE TIME. I DONT CARE WHO U ARE DUDE UNLESS UR ON MY DNI PLSPLSPLS
