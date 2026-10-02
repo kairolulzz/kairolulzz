@@ -1,4 +1,4 @@
-# kairo's intro
+# kairo's intro (SPAM FOLLOWERS DO NOT FOLLOW)
 help me idk what im doing UHHH pls bmf hahah i need friend on pt very much oh ok oh ok oh ok
 <br/> im kairo hello
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
