@@ -2,7 +2,7 @@
 help me idk what im doing UHHH pls bmf hahah i need friend on pt very much oh ok oh ok oh ok
 <br/> im kairo hello
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
-<br/> C+H ARE ALWAYS HEAVILY ENC **UNLESS** I HAVE DNI OR DNT IN MY NAME. I AM SERIOUS. I WANT SOMEONE SITTING WITH ME ALL THE TIME. I DONT CARE WHO U ARE DUDE UNLESS UR ON MY DNI!!! also, i like never go and sit next to someone else that isnt my friend because im so fucking scared to do it omg but i swear if u wanna sit with me DO IT i will be filled with joy and whimsy
+<br/> C+H ARE ALWAYS HEAVILY ENC **UNLESS** I HAVE DNI OR DNT IN MY NAME. I AM SERIOUS. I WANT SOMEONE SITTING WITH ME ALL THE TIME. I DONT CARE WHO U ARE DUDE UNLESS UR ON MY DNI!!! also, i like never go and sit next to someone else that isnt my friend because im so fucking scared to do it omg but i swear if u wanna sit with me DO IT i will be filled with joy and whimsy uhh also if i move from u is cuz once again i hate getting covered so if ur covering me or something unless ur c+h then i will move away.ok.ok
 <br/> FAV SHIPS: (C+H EXTRA ENC IF THESE) dessriel, blellow, blellowey, flowerkaard, kralsei, suselle, fasionshow, moonbasket, shellcake
 <br/> pls dont mention splatoon around me it makes me very uncomfy!!!
 <br/> **IM A TOODLES FICTIONKIN**
