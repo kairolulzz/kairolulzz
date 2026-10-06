@@ -1,5 +1,6 @@
 # toodles intro (SPAM FOLLOWERS DO NOT FOLLOW)
 help me idk what im doing UHHH pls bmf hahah i need friend on pt very much oh ok oh ok oh ok
+<br/> yo so maybe speak to my face instead of ignoring my messages and just speaking about me with ur friend
 <br/>
 <br/> im kairo hello
 <br/>
