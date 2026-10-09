@@ -1,9 +1,9 @@
-# toodles intro (SPAM FOLLOWERS DO NOT FOLLOW)
+# williams intro (SPAM FOLLOWERS DO NOT FOLLOW)
 <br/> if i dont reply to ur messages ure most likely chat blocked or im offtab or like u gen just pmo idk
 <br/>
 <br/> hey so i really need friends the only person i actively speak to,,, is my own brother,,, i only have 3 friends on pt,,, and one of thems my brother,,,,,,, 
 <br/>
-<br/> im toodles hello
+<br/> im william hello
 <br/>
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
 <br/>
