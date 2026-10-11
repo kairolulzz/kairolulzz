@@ -1,8 +1,8 @@
 # williams intro (SPAM FOLLOWERS DO NOT FOLLOW)
 <br/> if i dont reply to ur messages ure most likely chat blocked or im offtab or like u gen just pmo idk
 <br/>
-<br/> hey so i really need friends the only person i actively speak to,,, is my own brother,,, i only have 3 friends on pt,,, and one of thems my brother,,,,,,, EDIT: no GENUINELY i NEEEEDD friends pls im so lonely can someone jjust sit with me or something help heeelpelp
-<br/>
+<br/> ohhh to have a friend who has the same time zone as me... and is always online on pt... and who is in the same fandoms as me... ohhhhhhhhh hello is my mic muted hello i need friends pls i literallly have 0 friends deadass no kidding ok bye aaj jcnsdbbvwdjksv wdjwdks
+<br/> 
 <br/> im william hello
 <br/>
 <br/> im **14** (people over 18 or under 12 DNI/IWEC)
