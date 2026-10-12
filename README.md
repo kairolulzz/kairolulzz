@@ -13,8 +13,6 @@
 <br/>
 <br/> pls dont mention splatoon around me it makes me very uncomfy!!!
 <br/>
-<br/> IM A TOODLES FICTIONKIN  dubls ok, ok?
-<br/>
 <br/> I AM A ROULXS KAARD AND A FLOWERY YUMESHIPPER. (SELECTIVE SHARING; DOUBLES WHO ARE STRAIGHT AND CIS DNI plss tyyyy)
 <br/>
 <br/> **DNI: basic dni + if youre anything but radinclus, radqueers, dark/proshipper**
